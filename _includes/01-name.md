@@ -1,0 +1,3 @@
+# Nivedhitha Swaminathan
+
+## Github exploration
